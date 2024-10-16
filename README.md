@@ -4,6 +4,7 @@ Tagalog - Pending
 
 
 English - must in maoy mode
+
 Bisaya - Something admiring someone
 Tagalog - Something Motivational words of wisdumb???
 
